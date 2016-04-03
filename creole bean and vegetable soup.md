@@ -1,6 +1,6 @@
 # ingredients
 
-1/2 lb. cooked anasazi beans (first hour)
+1/2 lb. cooked anasazi beans
 
 3 celery stalks finely chopped
 
