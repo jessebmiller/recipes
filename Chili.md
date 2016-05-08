@@ -17,3 +17,5 @@
 * oregeno/margoram
 * salt and pepper
 * cocoa powder
+
+Combine ingredients in slow cooker and cook forever.
